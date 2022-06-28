@@ -1,4 +1,4 @@
-# StatuyevAnin
+# StatuyevAnim
 WARNING:
 This script having a explicit content.
 And the risk you may be banned for using 18+ script.
